@@ -1,6 +1,6 @@
 # 👋 Hi, I'm Vaibhav Prasad Padhi | Student
 
-**📍** Bhubaneswar, Odisha, India | **📧** vaibhavprasad2020@gmail.com 
+**📍** Bhubaneswar, Odisha, India | **📧** padhivaibhavprasad@gmail.com 
 
 ---
 
